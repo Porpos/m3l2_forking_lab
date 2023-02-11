@@ -1,0 +1,1 @@
+Onuralp, Istanbul/Turkey, Meta Front-End Developing
